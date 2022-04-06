@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @gabidotrodrigues
+-  👀 I’m interested in learning more about all of technologies :)
